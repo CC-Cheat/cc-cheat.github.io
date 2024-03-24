@@ -2,9 +2,9 @@
 
 ## 下载
  - [OneDrive](https://snesite-my.sharepoint.com/:f:/g/personal/lagsnes_snesite_onmicrosoft_com1/EkbePZxcD-xCnZ6TE2rx8q0BB5L7AZBzb0MwsA6bhpRtzA?e=OGQVPC) (适合中国用户)     
- 密码: [加入Telegram群组获得](https://t.me/CCGCYYDS)
+ 密码: [加入Telegram群组获得](https://t.me/CCGCYYDS/11044)
  - [Mega](https://mega.nz/folder/b1tlRIbK)  
- 密码: [加入Telegram群组获得](https://t.me/CCGCYYDS)
+ 密码: [加入Telegram群组获得](https://t.me/CCGCYYDS/11044)
 
 ## 关于
 请加入我们的 [Telegram 群聊](https://t.me/CCGCYYDS) 和 [频道](https://t.me/CC-Cheat)
