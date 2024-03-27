@@ -1,5 +1,6 @@
 ## v1.0.3 正式版
  - 修复部分Bug
+ - **请前往 [t.me/ccgcyyds](https://t.me/ccgcyyds) 下载模块**
 
 ## v1.0.2 正式版
  - 加入了自动更新系统
